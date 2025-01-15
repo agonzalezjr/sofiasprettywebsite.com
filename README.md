@@ -1,1 +1,1 @@
-# https-sofiasprettywebsite.com-
+# sofiasprettywebsite.com
